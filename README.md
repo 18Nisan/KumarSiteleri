@@ -1,8 +1,8 @@
 # <a href="https://edu.norwichuniversty.com/tr?faff=4109">Casibom.com</a>
 # <a href="https://edu.norwichuniversty.com/tr?faff=4109">TIKLA VE GİRİŞ YAP</a>
 
-<a href="https://shortlinkapp.com/casibom" title="ResimLink - Resim Yükle"><img src="https://r.resimlink.com/QIBtgMAZRuzY.jpg" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
-<a href="https://shortlinkapp.com/casibom" title="ResimLink - Resim Yükle"><img src="https://r.resimlink.com/QIBtgMAZRuzY.jpg" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
+<a href="https://edu.norwichuniversty.com/tr?faff=4109" title="ResimLink - Resim Yükle"><img src="https://r.resimlink.com/QIBtgMAZRuzY.jpg" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
+<a href="https://edu.norwichuniversty.com/tr?faff=4109" title="ResimLink - Resim Yükle"><img src="https://r.resimlink.com/QIBtgMAZRuzY.jpg" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle"></a>
 
 🎰 Casibom – Şansını Zorlama, Burada Zaten Yüzde 100 Eğlence Var!
 🎲 Bahisin eğlenceli yüzüyle tanışmaya hazır mısın?
